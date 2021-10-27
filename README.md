@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JAYP13579
-- 👀 I’m interested in Coding 
+- 👀 I’m interested in networking and Coding 
 - 🌱 I’m currently learning basics of coding
 - 💞️ I’m looking to collaborate on every one 
 - 📫 How to reach me on my email:niyomugabop@gmail.com
